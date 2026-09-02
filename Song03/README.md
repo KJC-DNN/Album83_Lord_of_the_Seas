@@ -1,4 +1,6 @@
-
+# Album 83 Lord of the Seas
+Christ remains Lord of the seas (Psalm 95:5; Matthew 8:27)
+He is also Lord of every land, pole, ruin, and frequency.
 
 ## Song 3 Tides of War Under One Lord
 Christ remains Lord of the seas — and of every plain, jungle, desert, ruin, and tide (Psalm 95:5; Matthew 8:27).
