@@ -12,3 +12,4 @@ A Voice Behind Me — The Saltwater Heart (3801–3900)
 The Pattern Screamer and the Starless Abyss (3901–4000)
 The Name Above Every Stolen Name (4000 + sweep)
 
+Keywords: Album 83, Lord of the Seas, KJC-DNN, Remnant Christian Worship, SCP 3401-4000, Psalm 95:5, Matthew 8:27, Strait of Hormuz, Pattern Screamer, SCP-4000 Taboo, spiritual warfare, spoken prayer, intercession
