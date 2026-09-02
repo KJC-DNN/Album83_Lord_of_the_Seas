@@ -21,7 +21,7 @@ The Name Above Every Stolen Name (4000 + sweep)
 ## Keywords
 Album 83, Lord of the Seas, KJC-DNN, Remnant Christian Worship, SCP 3401-4000, Psalm 95:5, Matthew 8:27, Strait of Hormuz, Pattern Screamer, SCP-4000 Taboo, spiritual warfare, spoken prayer, intercession
 
-## Place	   Locator
+## Place & Locator
 GitHub - https://github.com/KJC-DNN/Album83_Lord_of_the_Seas/releases/tag/83.0.0
 
 Zenodo 1 - https://doi.org/10.5281/zenodo.22226453
