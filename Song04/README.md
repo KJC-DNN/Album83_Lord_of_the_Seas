@@ -1,6 +1,7 @@
 # Album 83 Lord of the Seas
+Christ remains Lord of the seas (Psalm 95:5; Matthew 8:27)
 
-
+He is also Lord of every land, pole, ruin, and frequency.
 
 ## Song 4 Smiting on a Budget — The Tide That Cannot Be Bought
 Range: SCP 3701–3800
