@@ -8,10 +8,10 @@ Range: SCP 3501–3600:
 
 Song 2 of Album 83 covers SCP 3501–3600: official files plus intercession over Haida / colonial poles, Ashanti rites, Chicago phantom radio and false pasts, London choral cover, Babylon / Marduk tablets, Inca–stupa–Berber–glacier–reef–sarcophagus–tide–ice–Samoa overlays. Current repatriation, looting, and “hidden landscape” news are named only for binding. Christ remains Lord of land and sea.
 
-### Study Note
+## Study Note
 SCP-3515 (Unearth) is officially a drawing that causes digging-sounds and disappearance in sleep — mapped here to false excavation of the past. SCP-3600 is officially a cuneiform-like cognitohazard of doomsday knowledge — mapped to Babylon tablets without treating Marduk as real deity. Haida pole removal and museum repatriation are historical facts of colonial taking; prayer seeks truth and healing, not a political program. Psalm 95:5 / Matthew 8:27 still close the set.
 
-#### Track list:
+## Track list:
 Story - The Hymn That Would Not Be Stolen
 
 Story Song - Prayer Against the Stolen Past
@@ -40,8 +40,11 @@ Travel - Road of the Word — Coast to Ruin to Glacier
 
 Anthem - The Hymn Is His
 
-##### Prayer
+## Prayer
 Jesus, restore what was stolen. Silence phantom histories. Bind 3501–3600 and every overlay named. You formed the dry land. The sea is Yours. Amen.
+
+## Keywords
+Album 83, SCP 3501-3600, Haida totem, colonial chains, phantom radio, false past, Babylon Marduk, glacier reef Antarctica, Unearth, Documenting Doomsday, KJC-DNN, Lord of the seas
 
 
 
