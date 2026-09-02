@@ -5,14 +5,21 @@ Seven-song worship cycle under the confession that Christ is Lord of the seas (P
 ## Tracklist:
 
 The Lap That Could Not Be Erased (3401–3500)
+
 The Hymn That Would Not Be Stolen (3501–3600)
+
 Tides of War Under One Lord (3601–3700)
+
 The Tide That Cannot Be Bought (3701–3800)
+
 A Voice Behind Me — The Saltwater Heart (3801–3900)
+
 The Pattern Screamer and the Starless Abyss (3901–4000)
+
 The Name Above Every Stolen Name (4000 + sweep)
 
-Keywords: Album 83, Lord of the Seas, KJC-DNN, Remnant Christian Worship, SCP 3401-4000, Psalm 95:5, Matthew 8:27, Strait of Hormuz, Pattern Screamer, SCP-4000 Taboo, spiritual warfare, spoken prayer, intercession
+## Keywords
+Album 83, Lord of the Seas, KJC-DNN, Remnant Christian Worship, SCP 3401-4000, Psalm 95:5, Matthew 8:27, Strait of Hormuz, Pattern Screamer, SCP-4000 Taboo, spiritual warfare, spoken prayer, intercession
 
 ## Place	   Locator
 GitHub - https://github.com/KJC-DNN/Album83_Lord_of_the_Seas/releases/tag/83.0.0
