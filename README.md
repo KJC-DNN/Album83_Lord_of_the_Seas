@@ -13,3 +13,17 @@ The Pattern Screamer and the Starless Abyss (3901–4000)
 The Name Above Every Stolen Name (4000 + sweep)
 
 Keywords: Album 83, Lord of the Seas, KJC-DNN, Remnant Christian Worship, SCP 3401-4000, Psalm 95:5, Matthew 8:27, Strait of Hormuz, Pattern Screamer, SCP-4000 Taboo, spiritual warfare, spoken prayer, intercession
+
+## Place	   Locator
+GitHub	   https://github.com/KJC-DNN/Album83_Lord_of_the_Seas/releases/tag/83.0.0
+
+Zenodo 1	https://doi.org/10.5281/zenodo.22226453
+
+Zenodo 2	https://doi.org/10.5281/zenodo.22231160
+
+Zenodo 3	https://doi.org/10.5281/zenodo.22232266
+
+Archive	  https://archive.org/details/album-83-lord-of-the-seas-main-cover.jpg
+
+(Note: Christian intercession album. Not affiliated with the SCP Wiki.)
+
