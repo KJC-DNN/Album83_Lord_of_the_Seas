@@ -1,11 +1,41 @@
 # Album 83 Lord of the Seas
 Christ remains Lord of the seas (Psalm 95:5; Matthew 8:27)
+
 He is also Lord of every land, pole, ruin, and frequency.
 
 ## Song 3 Tides of War Under One Lord
 Christ remains Lord of the seas — and of every plain, jungle, desert, ruin, and tide (Psalm 95:5; Matthew 8:27).
 
 Song 3 of Album 83 covers SCP 3601–3700: official files (ocean-fill, list-disorder, Your Reality, Forgotten Archive, Greatest Attractor, Tides of War, nameless desert) plus overlays from Nigeria–Brazil–Iran–Mexico–Siberia–South Africa–Peru–India–UK–Ethiopia–Fiji–Canada–Samoa. Algorithm “ancestral / colonial / shadow-tide” content is named only for binding.
+
+## Track list
+Story -	Tides of War Under One Lord
+
+Story Song - Prayer Against the Numbered Tide
+
+Parables - The Sea That Would Not Serve Two Masters
+
+Psalms - Psalm of One Lord Over the Tide
+
+Proverbs - Wisdom Over Wrath and Veil
+
+Haiku - One Lord, One Tide
+
+Riddle - Riddle of the Numbered Wave
+
+Name-Chant - Jesus — Lord of the Seas
+
+Exit - Out of the Tide of War
+
+Protest - We Protest the False War-Hymn
+
+Watchman - I See the Plains and the Ruins; I Do Not Enlist
+
+Balm - For Scarred Coasts and Peoples
+
+Travel - Road of the Word — Plains to Jungle to Desert
+
+Anthem - The Tide Has One Lord
 
 ## Study Note
 Official SCP-3700 is titled Tides of War; SCP-3610 To Fill the Ocean; SCP-3702 a nameless desert walk — mapped to Christ as Lord of sea and wilderness, not as Foundation procedure. Yoruba, Zoroastrian, Vedic, Celtic, San, Aksumite, and Aztec names are treated as created things and rival claims, not as powers to consult. Colonial scars are real wounds; vengeance is not the gospel. Psalm 95:5 / Matthew 8:27 close the set.
